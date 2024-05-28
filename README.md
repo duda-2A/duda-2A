@@ -16,4 +16,3 @@ desenvolvidos
 
 @duda-2A
 
-![](https://media1.tenor.com/m/sR6tkmxxrhQAAAAd/depressed-bored.gif)
